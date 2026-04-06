@@ -1,4 +1,3 @@
 ajjjjjjjjjjjjj# Niraj_ganduahhhhhhhhhh
 Machicken
-ahhhhhhhhhhhhhh
-kkkkkkkkeeeeeeeeeeee
+ahhhhhhh
